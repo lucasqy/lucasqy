@@ -8,5 +8,4 @@ What are your hobbies?
 
 Play videogames 🎮
 play soccer ⚽
-Eat at cafés ☕
 Be with the people I love 💑
