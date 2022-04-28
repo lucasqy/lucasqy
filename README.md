@@ -9,4 +9,8 @@ I'm currently a student at Colégio Técnico Industrial de Santa Maria (CTISM), 
 * Play videogames 🎮
 * play soccer ⚽
 * Be with the people I love 💑
-		
+
+### Social Medias 📷
+
+* https://Instagram.com/lucas__zx_/
+* https://twitter.com/lucas__zx_
