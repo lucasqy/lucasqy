@@ -1,4 +1,4 @@
-### Hi! 👋
+### Olá! 👋
 My name is Lucas Morais Da Silva. 
 I currently live in Santa Maria, Rio Grande do Sul, Brazil.
 
@@ -9,3 +9,4 @@ I'm currently a student at Colégio Técnico Industrial de Santa Maria (CTISM), 
 * Play videogames 🎮
 * play soccer ⚽
 * Be with the people I love 💑
+		
