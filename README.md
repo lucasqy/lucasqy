@@ -1,4 +1,4 @@
-### Olá! 👋
+### Hello! 👋
 My name is Lucas Morais Da Silva. 
 I currently live in Santa Maria, Rio Grande do Sul, Brazil.
 
