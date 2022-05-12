@@ -1,16 +1,16 @@
-### Hello! 👋
-My name is Lucas Morais Da Silva. 
-I currently live in Santa Maria, Rio Grande do Sul, Brazil.
+### Ola! 👋
+Meu nome é Lucas Morais Da Silva. 
+Atualmente moro em Santa Maria, Rio Grande do Sul, Brazil.
 
-### What do I do? 🤓
-I'm currently a student at Colégio Técnico Industrial de Santa Maria (CTISM), at UFSM.
-### What are your hobbies? 
+###O que eu faço? 🤓
+Atualmente sou aluno do Colégio Técnico Industrial de Santa Maria (CTISM), da UFSM.
+### Quais são seus hobbies? 
 
-* Play videogames 🎮
-* play soccer ⚽
-* Be with the people I love 💑
+* Jogar videogames 🎮
+* Jogar futebol ⚽
+* Estar com as pessoas que eu amo 💑
 
-### Social Medias 📷
+### Redes Sociais 📷
 
 * https://Instagram.com/lucas__zx_/
 * https://twitter.com/lucas__zx_
