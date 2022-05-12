@@ -14,3 +14,5 @@ Atualmente sou aluno do Colégio Técnico Industrial de Santa Maria (CTISM), da 
 
 * https://Instagram.com/lucas__zx_/
 * https://twitter.com/lucas__zx_
+
+![](hhttps://tenor.com/view/escoltablanca-cristiano-yoestoyaqui-celebracion-gol-gif-21654789)	
