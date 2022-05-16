@@ -15,4 +15,4 @@ Atualmente sou aluno do Colégio Técnico Industrial de Santa Maria (CTISM), da 
 * https://Instagram.com/lucas__zx_/
 * https://twitter.com/lucas__zx_
 
-![](https://twitter.com/AnimePics___/status/1486722841735090186?s=20&t=7oNi1bVumRaG8egURt-Fpg)	
+![alt](https://twitter.com/AnimePics___/status/1486722841735090186?s=20&t=7oNi1bVumRaG8egURt-Fpg)	
