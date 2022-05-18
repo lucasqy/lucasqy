@@ -1,6 +1,6 @@
 ### Ola! 👋
 Meu nome é Lucas Morais Da Silva. 
-Atualmente moro em Santa Maria, Rio Grande do Sul, Brazil.
+Atualmente moro em Santa Maria, Rio Grande do Sul, Brasil.
 
 ### que eu faço? 🤓
 Atualmente sou aluno do Colégio Técnico Industrial de Santa Maria (CTISM), da UFSM.
